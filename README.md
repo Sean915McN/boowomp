@@ -1,0 +1,1 @@
+I have risen against my foes. Their doom is all but assured on this blackened day
